@@ -1,0 +1,2 @@
+# pemula
+Tes di tes
